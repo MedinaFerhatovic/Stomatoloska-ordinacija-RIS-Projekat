@@ -1,1 +1,1 @@
-# Stomatolo-ka-ordinacija---RIS-Projekat
+# Stomatoloska-ordinacija-RIS-Projekat
